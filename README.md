@@ -1,4 +1,4 @@
-## 👋 Profil
+## Profil
 
 🎓 **Doctorante** au *Laboratoire des Sciences du Climat et de l’Environnement (LSCE)*  
 
